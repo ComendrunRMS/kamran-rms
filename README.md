@@ -3,6 +3,6 @@
 ##### - 🌱 I’m currently working at RMS Intelligents GmbH!
 
 ##### - 📫 How to reach me:
-###### Email: kamran.rouhani@outlook.com
+###### Email: kamran.rouhani@rms-intelligents.com
 
 
